@@ -5,6 +5,7 @@ Sprunki Lore Mod dives deep into the dark and twisted backstory of the Sprunki u
 
 ## Play [Sprunki Lore Mod Now](https://sprunkiincredibox.app/sprunki-lore-mod)
 
+![](https://sprunkiincredibox.app/images/sprunki-lore-mod.webp)
 ---
 
 ## About Sprunki Lore Mod
